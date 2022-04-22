@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Alexa (Amazon stole my name 😭) ⚜️🇨🇦.
+- 👋 Hi, I’m Alexa ⚜️🇨🇦.
 - 👀 Besides coding, which I started learning this year (Feb 2022), my interests are reading 📚 (mostly fiction), skincare 🧴, the MCU 🎥✨(now MCM??), everything food & wine 🍳🍷  (and gin! 🍸), and my furr babies 🐶🐱.
 - ✍️ I’m currently learning to code, studying for the Ontario bar exam and learning to drive.
 - 🌱 What I want to learn next: back end development 👩🏻‍💻, financial literacy 💱, a new language 💬, and the piano 🎹.
