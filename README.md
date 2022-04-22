@@ -2,7 +2,7 @@
 - 👀 My interests are reading 📚, skincare🧴, the MCU 🎥✨, everything food & bev 🍳🍸, and my furr babies 🐶🐱.
 - ✍️ Besides coding, which I started learning this year, I’m currently studying for the Ontario bar exam and learning to drive 🚗.
 - 🌱 What I want to learn next: back end development 👩🏻‍💻, financial literacy 💱, a new language 💬, and the piano 🎹.
-- 📫 How to reach me: linkedin.com/in/alexa-m-klein, @alexamklein on Instagram.
+- 📫 How to reach me: @alexamklein on all my social media.
 
 <!---
 alexamklein/alexamklein is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
